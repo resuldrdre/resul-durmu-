@@ -1,1 +1,1 @@
-# resul-durmu-
+# resul-durmuş
